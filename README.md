@@ -19,7 +19,7 @@ Ryan trabalha em um empresa de alimentos que fabrica e vende seus produtos algum
 - Dedicado 
 - Organizado
 - Comunicativo
-- Focada no serviço 
+- Focado no serviço 
 
 ##  Objetivos
 
